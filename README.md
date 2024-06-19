@@ -76,6 +76,21 @@ Food and beverages at a soccer-themed wedding can also be tailored to fit the th
 
 <br>
 </details>
+<details><summary>Casual Beach Wedding</summary>
+<br>
+
+![Beach Wedding](https://github.com/sourceduty/Wedding_Design/assets/123030236/b58b9f02-1331-43f3-b155-af270bc6f3fd)
+
+A beach wedding is a celebration that captures the essence of natural beauty and laid-back elegance. With the serene backdrop of the ocean waves gently crashing against the shore and the golden sun setting in the distance, this type of wedding offers an idyllic setting for a memorable and picturesque ceremony. The warm sand beneath your feet, the gentle sea breeze, and the tranquil sounds of nature create an atmosphere of romance and tranquility, making it a perfect choice for couples who love the outdoors and wish to embrace a more relaxed yet enchanting wedding environment.
+
+The decor for a beach wedding can be both simple and stunning, utilizing the natural surroundings to enhance the overall aesthetic. Floral arrangements often feature tropical blooms such as orchids, hibiscus, and frangipani, adding vibrant colors and exotic charm to the venue. Driftwood, seashells, and other seaside elements can be incorporated into centerpieces and aisle decorations, creating a cohesive and thematic look. The arch for the ceremony can be adorned with flowing fabrics and flowers, blending seamlessly with the coastal landscape while providing a focal point for the exchange of vows.
+
+Attire for a beach wedding typically leans towards comfort and style, with lightweight and breathable fabrics being a popular choice. Brides often opt for flowing dresses made of chiffon or organza, sometimes with shorter hemlines or even bridal swimsuits with cover-ups, as seen in the provided image, allowing for ease of movement on the sand. Grooms might choose linen suits or casual button-down shirts paired with shorts, creating a relaxed yet polished appearance. Guests are also encouraged to dress comfortably, often in resort wear or beach-friendly attire, adding to the overall laid-back vibe of the event.
+
+Entertainment and activities at a beach wedding can range from live music and dance floors set up on the sand to more interactive options like beach games and bonfires. The reception can feature a tropical-themed menu, with fresh seafood, exotic fruits, and refreshing cocktails that complement the beach setting. As the night progresses, the celebration can continue under the stars, with the sounds of the ocean providing a soothing background melody. A beach wedding not only offers a stunning visual experience but also an unforgettable atmosphere of joy and celebration, making it a perfect choice for couples looking to create a unique and memorable wedding day.
+
+<br>
+</details>
 
 #
 ### Related Links
