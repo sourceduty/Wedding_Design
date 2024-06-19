@@ -15,6 +15,10 @@
 ### Related Links
 
 [Weddings](https://github.com/sourceduty/Weddings)
+<br>
+[House Design](https://github.com/sourceduty/House_Design)
+<br>
+[Product Design](https://github.com/sourceduty/Product_Design)
 
 ***
 Copyright (C) 2024, Sourceduty - All Rights Reserved.
