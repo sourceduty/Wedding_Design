@@ -172,6 +172,21 @@ This concept combines historical grandeur with natural beauty, ensuring your Egy
 
 <br>
 </details>
+<details><summary>Classic Wedding Design</summary>
+<br>
+
+![Classic Wedding](https://github.com/sourceduty/Wedding_Design/assets/123030236/cfaa21f8-0391-4ab6-9f11-0ef0821ef674)
+
+This wedding dinner exudes timeless elegance and sophistication, perfectly capturing the essence of a Classic and Elegant theme. The venue is adorned with a refined color palette of white and gold, setting a luxurious tone for the celebration. Round tables, draped in crisp white linens, are meticulously arranged to create an inviting and intimate atmosphere. Each table is set with fine china, crystal glasses, and gleaming silverware, reflecting the couple's impeccable taste and attention to detail.
+
+The centerpiece of each table is a stunning floral arrangement that reaches towards the ceiling. These tall centerpieces feature cascading white and gold flowers, creating a breathtaking visual impact that adds height and drama to the room. The flowers are artfully arranged to look lush and abundant, contributing to the overall opulence of the decor. The delicate blooms contrast beautifully with the sleek, modern table settings, creating a harmonious blend of traditional and contemporary elements.
+
+Lighting plays a crucial role in enhancing the romantic ambiance of the dinner. Elegant chandeliers hang from the ceiling, casting a warm and inviting glow over the entire space. The soft flicker of candlelight adds an intimate touch, illuminating each table with a gentle radiance. This combination of chandeliers and candles not only highlights the beautiful floral arrangements and table settings but also creates a cozy and enchanting environment for guests to enjoy.
+
+The plated dinner service further elevates the dining experience, offering guests a taste of luxury with each meticulously prepared dish. Personalized place cards and luxurious table linens add a bespoke touch, making each guest feel special and valued. The overall atmosphere is one of refined sophistication, where every detail has been thoughtfully considered to create a memorable and enchanting evening. This wedding dinner is a celebration of love and elegance, providing the perfect backdrop for a couple's special day.
+
+<br>
+</details>
 
 #
 ### Related Links
