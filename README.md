@@ -112,6 +112,19 @@ Overall, a Canadian Maple Wedding theme is a beautiful way to celebrate both you
 
 <br>
 </details>
+<details><summary>American Eagles Wedding</summary>
+<br>
+
+![American Eagles Wedding](https://github.com/sourceduty/Wedding_Design/assets/123030236/b8f65e3a-bcbf-47e4-adbb-0d9a19349f0b)
+
+The American Eagle-themed wedding is a stunning celebration of patriotism and natural beauty. Set outdoors, the venue boasts a panoramic view of majestic mountains and a serene lake, providing a breathtaking backdrop for the ceremony. The decor features a patriotic color scheme of red, white, and blue, seamlessly integrated into every detail. Elegant white chairs are arranged neatly for the guests, each adorned with red and blue ribbons, adding a touch of festive flair.
+
+The aisle, a central feature of the setup, is lined with white flower petals and small American flags, creating a path that is both beautiful and symbolic. At the altar, a grand archway stands tall, decorated with intertwining red, white, and blue flowers. Perched atop this arch is a magnificent eagle statue, a proud emblem that anchors the theme of the wedding.
+
+Beneath the arch, the bride and groom stand, dressed in classic attire with subtle patriotic accents that tie their look to the overall theme. The bride's bouquet and the groom's boutonniere feature red and blue flowers, adding to the cohesive design. The combination of the natural setting, the carefully chosen decor, and the symbolic elements creates an ambiance that is both elegant and deeply meaningful. This American Eagle-themed wedding is a unique and memorable way to celebrate a union with a touch of national pride.
+
+<br>
+</details>
 
 #
 ### Related Links
