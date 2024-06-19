@@ -125,6 +125,19 @@ Beneath the arch, the bride and groom stand, dressed in classic attire with subt
 
 <br>
 </details>
+<details><summary>India Elephant Wedding</summary>
+<br>
+
+![India Elephant Wedding](https://github.com/sourceduty/Wedding_Design/assets/123030236/1b69779b-96bb-4ad5-9cd3-6d096933b8a5)
+
+magine an extravagant Indian Elephant Wedding set in a traditional Indian palace. The venue is adorned with vibrant and colorful decor, featuring rich hues of reds, oranges, and golds. Elaborate floral arrangements and draped fabrics create a festive and opulent atmosphere, perfectly complementing the majestic surroundings of the palace. Traditional Indian artifacts and decorations are placed strategically around the venue, enhancing the cultural ambiance.
+
+The Baraat procession is a highlight, with beautifully adorned elephants leading the way, adding a grand and regal touch to the celebration. The wedding invitations and stationery are elegantly designed, featuring intricate elephant motifs that set the tone for the event. Traditional Indian music and dance performances entertain the guests, creating a lively and joyous atmosphere. A mix of Indian and Western cuisine is served, offering a delightful culinary experience for all attendees.
+
+The bride and groom are dressed in custom wedding attire that includes detailed elephant motifs, adding a unique and personal touch to their special day. This combination of vibrant decor, cultural elements, and personalized details creates a stunning and unforgettable Indian Elephant Wedding.
+
+<br>
+</details>
 
 #
 ### Related Links
