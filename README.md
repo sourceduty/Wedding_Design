@@ -138,6 +138,23 @@ The bride and groom are dressed in custom wedding attire that includes detailed 
 
 <br>
 </details>
+<details><summary>Aboriginal Canadian Wedding</summary>
+<br>
+
+![Canadian Aboriginal Wedding](https://github.com/sourceduty/Wedding_Design/assets/123030236/079e28ec-54a2-4ac2-9ce0-c93bf1cb061f)
+
+For a Canadian Native American wedding, imagine a breathtaking forest or outdoor setting that embraces the natural beauty of the landscape. The ceremony takes place amidst towering trees, with sunlight filtering through the leaves, creating a serene and spiritual atmosphere. A traditional lodge nearby serves as the reception area, blending rustic charm with historical significance, perfect for celebrating this special day.
+
+The color palette is a harmonious blend of earth tones and vibrant colors. Browns, greens, and beiges reflect the natural surroundings, while accents of red, yellow, and blue add vibrancy and symbolize various elements of Native American culture. These colors are thoughtfully incorporated into every aspect of the wedding, from the attire to the decorations, creating a cohesive and visually stunning aesthetic.
+
+The bride and groom wear modern attire with traditional accents, combining contemporary elegance with cultural significance. The bride's dress features intricate beadwork and patterns inspired by Native American designs, while the groom's outfit includes beaded accessories and traditional motifs. This blend of styles honors tradition while maintaining a modern and sophisticated look.
+
+The ceremony includes meaningful ceremonial elements such as a smudging ceremony, where sacred herbs are burned to purify the space and the couple. Traditional drumming and singing set the rhythm and tone, adding a rich cultural layer to the event. An elder from the community offers a heartfelt blessing, imparting wisdom and blessings for the couple's future together.
+
+The decor is a beautiful fusion of traditional art and crafts with natural floral arrangements. Native art, pottery, and woven items adorn the venue, showcasing the rich heritage and craftsmanship of the community. Floral arrangements feature native plants and flowers, enhancing the connection to the land and its natural beauty. Symbolic elements like totem poles and dreamcatchers add depth and meaning to the overall decor, making the wedding both visually stunning and deeply significant.
+
+<br>
+</details>
 
 #
 ### Related Links
