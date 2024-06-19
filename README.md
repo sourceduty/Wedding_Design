@@ -1,4 +1,4 @@
-![Bungee Jump Wedding](https://github.com/sourceduty/Wedding_Design/assets/123030236/f46ec982-a214-4fa5-8349-e1f2a4dbce98)
+![Private Beach Wedding](https://github.com/sourceduty/Wedding_Design/assets/123030236/0b56fcc2-714a-4095-82af-d0c93ee4daf9)
 
 >
 #
@@ -28,6 +28,21 @@ The wedding cake will be a showstopper, shaped like a monster truck and surround
 
 Entertainment
 Entertainment at your wedding will be nothing short of spectacular with a live monster truck show. Guests will be thrilled by the monster trucks performing stunts and demonstrations, adding a dynamic and exhilarating element to the celebration. Off-road rides will also be available, providing an interactive and memorable experience for everyone. The overall atmosphere will be one of excitement and high energy, perfectly in line with the adventurous spirit of a Monster Truck-themed wedding.
+
+<br>
+</details>
+<details><summary>Bungee Jump Wedding</summary>
+<br>
+
+![Bungee Jump Wedding](https://github.com/sourceduty/Wedding_Design/assets/123030236/4bc9c5e6-e64e-4323-a2f3-6f9b9a6b8f7a)
+
+A bungee jump wedding is a thrilling and unique way for adventurous couples to celebrate their love. Instead of the traditional walk down the aisle, imagine the bride and groom standing on the edge of a breathtaking cliff, ready to take a leap of faith together. With the stunning natural scenery as a backdrop, the couple exchanges vows high above the ground, harnessed together for their daring plunge. This unforgettable moment not only symbolizes their commitment to each other but also their shared passion for excitement and adventure.
+
+The preparation for a bungee jump wedding requires meticulous planning to ensure both safety and an unforgettable experience. The couple and their guests are typically briefed on safety protocols, and professional instructors are present to manage the equipment and oversee the jump. The bride and groom often wear custom-designed attire that accommodates the harnesses, ensuring both elegance and practicality. As they prepare to jump, the anticipation and adrenaline build, creating an electrifying atmosphere that enhances the emotional impact of the ceremony.
+
+Once the vows are exchanged and the rings are in place, the moment of truth arrives. Hand in hand, the couple leaps off the platform, experiencing an exhilarating free fall before the bungee cords catch them. This heart-pounding experience is filled with joy and excitement, symbolizing their leap into married life together. The sheer thrill of the jump is matched by the breathtaking views of the landscape below, creating a memory that will be cherished forever. For the guests, witnessing such a bold declaration of love is both inspiring and unforgettable.
+
+After the jump, the celebration continues with a reception that reflects the couple's adventurous spirit. Whether it's a rustic outdoor picnic or a lively party at a nearby venue, the theme of adventure and excitement carries through the entire event. The stories of the bungee jump become a central topic of conversation, and the newlyweds bask in the glow of their extraordinary wedding day. A bungee jump wedding is not just a ceremony; it's a statement of love, courage, and a shared zest for life, making it a perfect choice for couples seeking a truly unique way to begin their journey together.
 
 <br>
 </details>
