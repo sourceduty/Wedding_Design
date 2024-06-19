@@ -91,6 +91,27 @@ Entertainment and activities at a beach wedding can range from live music and da
 
 <br>
 </details>
+<details><summary>Canadian Maple Wedding</summary>
+<br>
+
+![Canadian Wedding](https://github.com/sourceduty/Wedding_Design/assets/123030236/f71d410e-e93b-4b91-a53e-84b1ad758c63)
+
+A Canadian Maple Wedding theme beautifully captures the essence of Canada's natural beauty and cultural heritage. This theme is ideal for couples who love the outdoors and want their special day to reflect the rich, vibrant colors of autumn, as well as the serene, rustic charm of Canadian landscapes. The focal point of this wedding theme is the iconic maple leaf, which can be elegantly incorporated into various elements of the wedding decor, invitations, and even the wedding cake.
+
+For the venue, consider an outdoor setting such as a picturesque maple grove or a charming barn surrounded by lush foliage. The ceremony could take place under a canopy of maple trees, with leaves in brilliant hues of red, orange, and gold providing a stunning natural backdrop. For indoor receptions, a lodge or a venue with large windows offering views of the surrounding nature would be perfect. The decor can feature wooden accents, cozy fireplaces, and candlelight to enhance the rustic, intimate atmosphere.
+
+Floral arrangements should include rich, autumnal colors and seasonal blooms such as chrysanthemums, dahlias, and sunflowers. Maple leaves can be used as part of the centerpieces, bouquets, and boutonnieres. Additionally, incorporating elements like pinecones, branches, and berries will add texture and depth to the overall aesthetic.
+
+For the wedding attire, brides might opt for dresses with lace detailing and soft, flowing fabrics, complemented by accessories inspired by nature, such as maple leaf hairpieces or jewelry. Grooms can wear suits in earthy tones like brown, beige, or deep green, paired with maple leaf boutonnieres. Bridesmaids' dresses in warm shades of burgundy, burnt orange, or deep yellow will harmonize beautifully with the natural surroundings.
+
+The wedding cake can be a stunning centerpiece, adorned with edible maple leaves and elements inspired by the Canadian wilderness. Flavors like maple, cinnamon, and nutmeg will evoke the essence of the season. For a unique touch, consider a maple syrup bar where guests can sample different varieties of Canadian maple syrup, possibly paired with pancakes or waffles as a fun dessert option.
+
+Incorporating Canadian traditions and elements, such as a toast with Canadian whiskey or serving traditional Canadian dishes like poutine or butter tarts, will add a personal and authentic touch to the celebration. Party favors could include small bottles of maple syrup, maple sugar candies, or custom-made maple leaf ornaments, providing guests with a memorable keepsake from your special day.
+
+Overall, a Canadian Maple Wedding theme is a beautiful way to celebrate both your love and the natural beauty of Canada. With thoughtful details and careful planning, this theme will create a warm, inviting atmosphere that your guests will remember for years to come.
+
+<br>
+</details>
 
 #
 ### Related Links
