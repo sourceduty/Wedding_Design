@@ -1,4 +1,4 @@
-![Swimming Pool Wedding](https://github.com/sourceduty/Wedding_Design/assets/123030236/9dc07ac6-982b-48c8-9a4c-df18efcc3fe9)
+![Bungee Jump Wedding](https://github.com/sourceduty/Wedding_Design/assets/123030236/f46ec982-a214-4fa5-8349-e1f2a4dbce98)
 
 >
 #
