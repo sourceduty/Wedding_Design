@@ -49,6 +49,8 @@ After the jump, the celebration continues with a reception that reflects the cou
 <details><summary>Ring Box Design</summary>
 <br>
 
+![Ring Box Design](https://github.com/sourceduty/Wedding_Design/assets/123030236/1741b6c1-f28a-4e96-a9c0-4d8f578e17b5)
+
 A well-designed ring box is more than just a container for a precious ring; it serves as a cherished keepsake that can add an extra layer of significance to the moment of proposal or the ceremony of a wedding. The image provided showcases an elegant and sophisticated ring box crafted from rich, dark wood with a polished finish. The wood's natural grain is highlighted, adding a touch of organic beauty and timelessness to the box. This choice of material exudes warmth and durability, ensuring that the box itself becomes a treasured item, capable of holding memories for years to come.
 
 The interior of the ring box is lined with a plush, deep red velvet, creating a luxurious contrast to the wood exterior. The velvet not only provides a soft and secure cushion for the ring but also enhances its visual appeal by making the ring stand out dramatically. The deep red color symbolizes love and passion, further adding to the sentimental value of the box. This thoughtful combination of materials and colors demonstrates how attention to detail can elevate a simple item into a significant part of a memorable moment.
