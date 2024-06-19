@@ -168,7 +168,7 @@ For the bride, imagine a regal dress embellished with intricate gold details, re
 
 The wedding cake will be a luxurious masterpiece, adorned with gold accents and Egyptian symbols, tying in seamlessly with the overall theme. Lighting will play a crucial role in setting the mood, with bright and vibrant illumination enhancing the rich colors and ornate decorations, making the evening feel both lively and enchanting.
 
-This concept combines historical grandeur with natural beauty, ensuring your Egyptian Desert Wedding is as spectacular and memorable as possible. Let’s proceed to visualize this exquisite setup to bring your vision to life.
+This concept combines historical grandeur with natural beauty, ensuring your Egyptian Desert Wedding is as spectacular and memorable as possible.
 
 <br>
 </details>
