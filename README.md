@@ -155,6 +155,23 @@ The decor is a beautiful fusion of traditional art and crafts with natural flora
 
 <br>
 </details>
+<details><summary>Egyptian Desert Wedding</summary>
+<br>
+
+![Egyptian Desert Wedding](https://github.com/sourceduty/Wedding_Design/assets/123030236/d3a5dd8b-2252-41f9-847c-77bf437a9def)
+
+For your Egyptian Desert Wedding, envision the ceremony set against the timeless backdrop of traditional Egyptian ruins. This choice creates a majestic and historical ambiance, perfect for an unforgettable celebration. The ceremony setup will be richly decorated with gold accents and Egyptian motifs, emphasizing the grandeur and luxury associated with ancient Egypt.
+
+The primary color palette will feature deep blue and gold, evoking the rich hues found in Egyptian art and decor. Floral arrangements will consist of exotic flowers and greenery, adding a touch of lushness to the arid desert environment. This combination of colors and natural elements will create a stunning visual contrast.
+
+For the bride, imagine a regal dress embellished with intricate gold details, reflecting the opulence of Egyptian royalty. The groom will complement this look with Egyptian-inspired attire, blending tradition with a contemporary touch to create a cohesive and elegant appearance.
+
+The wedding cake will be a luxurious masterpiece, adorned with gold accents and Egyptian symbols, tying in seamlessly with the overall theme. Lighting will play a crucial role in setting the mood, with bright and vibrant illumination enhancing the rich colors and ornate decorations, making the evening feel both lively and enchanting.
+
+This concept combines historical grandeur with natural beauty, ensuring your Egyptian Desert Wedding is as spectacular and memorable as possible. Let’s proceed to visualize this exquisite setup to bring your vision to life.
+
+<br>
+</details>
 
 #
 ### Related Links
