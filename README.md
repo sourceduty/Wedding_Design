@@ -61,6 +61,21 @@ Moreover, the ring box’s design includes practical considerations, such as its
 
 <br>
 </details>
+<details><summary>Soccer Player Wedding</summary>
+<br>
+
+![Soccer Wedding](https://github.com/sourceduty/Wedding_Design/assets/123030236/b47c7447-d11f-4823-9573-91cb31199ba4)
+
+A soccer-themed wedding is a unique and vibrant celebration that combines the love for the beautiful game with the joy of matrimony. The ceremony typically takes place on a lush green soccer field, with the bride and groom dressed in elegant yet sporty attire. In this case, the bride might wear a stunning lace gown with a flowing skirt, paired with knee-high soccer socks and cleats, blending traditional bridal elegance with sporty flair. The groom and groomsmen, meanwhile, can sport tailored jerseys and shorts, perhaps in the colors of their favorite team, adding a personalized touch to their wedding outfits.
+
+The decor for a soccer wedding is both playful and sophisticated. The field can be adorned with goalpost arches decorated with flowers and greenery, and the aisle lined with soccer-themed banners and flags. Reception tables might feature centerpieces crafted from mini soccer balls and floral arrangements in the team's colors. To enhance the sporty atmosphere, guests could sit on bleachers or benches, creating a casual and fun seating arrangement that reflects the outdoor setting and the couple's passion for soccer.
+
+The wedding festivities often include fun and interactive elements that engage all guests. A friendly soccer match, where the bride, groom, and wedding party participate, is a highlight of the day, providing entertainment and a unique way for everyone to bond. The game can be followed by a traditional reception with soccer-inspired games and activities, such as penalty shootout competitions or dribbling challenges, ensuring that the spirit of soccer is infused throughout the celebration.
+
+Food and beverages at a soccer-themed wedding can also be tailored to fit the theme. A menu featuring popular stadium snacks like pretzels, hot dogs, and popcorn, alongside more refined dishes, offers a delightful mix of casual and gourmet dining. The wedding cake can be designed to resemble a soccer ball or field, adding a sweet and creative touch to the celebration. With its energetic and joyful atmosphere, a soccer-themed wedding is a perfect reflection of the couple's shared love for each other and the sport, creating unforgettable memories for everyone involved.
+
+<br>
+</details>
 
 #
 ### Related Links
